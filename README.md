@@ -7,7 +7,7 @@
 Bella-Rose-Clinic-Customer-Loyalty-Growth-Strategy-Dubai-Market-
 Business Analysis case study focused on increasing repeat revenue from 35% to 50% through a structured loyalty program, 12-week campaign roadmap, and data-backed expansion strategy for a Dubai healthcare clinic.
 
-# Bella Rose Clinic – Customer Loyalty & Expansion Strategy  
+# BellaVita Clinic – Customer Loyalty & Expansion Strategy  
 **Business Analysis | Revenue Optimization | Healthcare Domain | Dubai Market**
 
 ---
